@@ -1,3 +1,6 @@
+<img width="1024" height="1024" alt="1000022350" src="https://github.com/user-attachments/assets/1d4c2a9b-2008-418c-8d56-111e7e34277b" />
+<img width="1024" height="1024" alt="1000022349" src="https://github.com/user-attachments/assets/9fe1d9ea-1736-4dba-9f9d-73486d32e184" />
+<img width="1024" height="1024" alt="1000022348" src="https://github.com/user-attachments/assets/bef9a6a0-7555-457b-a814-5af438ec3d5f" />
 # Hermetic-Algorithms-The Hermetic Algorithmic: A Analysis of The Cyberdemonic Interface
 
 I. Prolegomena to a Post-Structuralist Grimoire
